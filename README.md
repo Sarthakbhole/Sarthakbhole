@@ -1,4 +1,4 @@
-I’m a data-driven professional with ~1.7+ years of experience working across procurement analytics and product analysis. I enjoy transforming raw data into meaningful insights that support business decisions and improve processes.
+I’m a data-driven professional with ~2+ years of experience working across procurement analytics and product analysis. I enjoy transforming raw data into meaningful insights that support business decisions and improve processes.
 
 📊 Experience in data analysis, procurement analytics, and product insights
 
